@@ -3,3 +3,5 @@
 JOHNNY IRL!  Graves' lover <3
 
 ![](https://files.catbox.moe/r3i78c.png)
+
+ love struck with that american warcriminal <3

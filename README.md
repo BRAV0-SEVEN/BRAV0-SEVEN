@@ -4,6 +4,6 @@ JOHNNY IRL!  Graves' lover <3
 
 Don't copy my skins!
 
-![](https://files.catbox.moe/r3i78c.png)
+![](https://files.catbox.moe/iylwv3.png)
 
  love struck with that american warcriminal <3
